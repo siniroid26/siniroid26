@@ -1,1 +1,2 @@
-Start site (Google Chrome)
+Hi. Im Aleksandr)
+Simple but tasteful)
